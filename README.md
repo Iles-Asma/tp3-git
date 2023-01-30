@@ -55,6 +55,4 @@ You know I'm the one who put you up there
 Name in the sky
 Does it ever get lonely?
 Thinking you could live without me
-Thinking you could live without me
-Baby, I'm the one who put you up there
-I don't know why (yeah, I don't know why)
+j'ai modifié ce readme sur branche2
