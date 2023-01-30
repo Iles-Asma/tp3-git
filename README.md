@@ -54,7 +54,5 @@ Feeling so high but too far away to hold me
 You know I'm the one who put you up there
 Name in the sky
 Does it ever get lonely?
-Thinking you could live without me
-Thinking you could live without me
-Baby, I'm the one who put you up there
-I don't know why (yeah, I don't know why)
+Thinking you could live witho
+j'ai  modifier le fichier sur branche 1
